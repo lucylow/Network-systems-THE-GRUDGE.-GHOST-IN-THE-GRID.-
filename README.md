@@ -3,7 +3,7 @@
 
 The grid remembers. The ghost never forgives.
 
-
+![](https://github.com/lucylow/Network-systems-THE-GRUDGE.-GHOST-IN-THE-GRID.-/blob/main/43.png?raw=true)
 
 Core Premise & Tone
 
